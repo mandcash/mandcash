@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mandcash
+- 👋 Hi, I’m Prabash Madusanka
 - 👀 I’m interested in web design
 - 🌱 I’m currently learning SEO
 
